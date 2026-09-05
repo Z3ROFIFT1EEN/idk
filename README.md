@@ -1,2 +1,2 @@
-# Me and my wife
-![image alt](https://github.com/Z3ROFIFT1EEN/idk/blob/main/Screenshot_20260525_001235_Photos.jpg)
+![image alt](<img width="1080" height="1337" alt="image" src="https://github.com/user-attachments/assets/441dbd03-6fbe-4495-989f-a475118482e8" />
+)
